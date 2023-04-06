@@ -9,6 +9,8 @@ I'm Yusuf Kağan Partal :rocket:
 
 It is a newly formed software company. It has achieved success in a very short time. The most interesting areas of the company, which is divided into many branches, are software and design. :clap:
 
+* [**Twitter_profile**](https://twitter.com/VaveylaxCompany) - You can check us
+
 
 
 
